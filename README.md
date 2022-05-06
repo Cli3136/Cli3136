@@ -1,5 +1,5 @@
 # A Bit About Me...
-Hello, I'm Cheryl 
+
 - 
 - 
 - 
